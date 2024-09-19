@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Matheus Souza, 17 years old
+- 👋 Hi, I’m Matheus Souza, 18 years old
 - 👀 I’m studying systems analysis and development - SENAI
 - 📫 To contact me matheusasouza2007@gmail.com
 
